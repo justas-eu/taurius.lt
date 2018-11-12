@@ -28,6 +28,8 @@ Lego
 
 [Raidės kompas](https://pigu.lt/lt/kudikiams-ir-vaikams/zaislai/zaislai-kudikiams/plansetinis-kompiuteris-vaikams-fisher-price-dlm40-lietuviu?id=7048641)
 
+[Mediniai žaisliukai](https://www.medinisarkliukas.lt/mediniai-zaislai)
+
 [Ergoterapinai žaislai](https://pigu.lt/lt/kudikiams-ir-vaikams/zaislai/zaislai-kudikiams/lavinamasis-ergoterapinis-zaislas?id=6617706)
 
 [Spalvinimas su vandeniu](https://www.amazon.de/BBLIKE-Malbücher-Zauberstift-Wiederverwendbare-Geburtstagsgeschenke/dp/B07FLQBGCN)
