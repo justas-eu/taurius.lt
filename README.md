@@ -14,7 +14,7 @@
 
 [Roboter](https://www.amazon.de/Boxer-Spielspa%C3%9F-spielbereit-Charakter-App-Unterst%C3%BCtzung/dp/B07BMB2QP3)
 
-[Ismanus laikrodis](http://gudrutis.lt/parduotuve/gps-laikrodziai/gudrutis-r10-kamufliazinis/)
+[Išmanus laikrodis](http://gudrutis.lt/parduotuve/gps-laikrodziai/gudrutis-r10-kamufliazinis/)
 
 [Diktafonas](http://www.skytech.lt/v405291be000-olympus-digital-voice-recorder-vn540pc-segment-display-139-wma-blac-p-406516.html)
 
