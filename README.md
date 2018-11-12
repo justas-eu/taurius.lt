@@ -6,13 +6,12 @@
 
 [Trunki lagaminas](http://www.weeride.lt/Vaikiski-lagaminai-Trunki/Vaikiskas-lagaminas-Trunki-Pedro-Pirat)
 
-[sphero-mini-robot](http://www.skytech.lt/m001grw-sphero-mini-robot-green-green-white-plastic-p-374136.html)
-
+Sphero robotas [sphero-mini-robot](http://www.skytech.lt/m001grw-sphero-mini-robot-green-green-white-plastic-p-374136.html)
 [sphero-mini-robot +](http://www.skytech.lt/1b01rw1-robotollie-white-sphero-p-318855.html)
-
 [sphero-mini-robot ++](http://www.skytech.lt/1b01bfc-sphero-darkside-appenabled-robot-bluetooth-black-ios-android-windows-pol-p-318856.html)
 
 [Roboter](https://www.amazon.de/Boxer-Spielspa%C3%9F-spielbereit-Charakter-App-Unterst%C3%BCtzung/dp/B07BMB2QP3)
+[Roboter](https://pigu.lt/lt/vaikams-ir-kudikiams/zaislai-ir-zaidimai-vaikams/zaislai-berniukams/interaktyvus-robotas-boxer-60453986046962?id=24351790)
 
 [Išmanus laikrodis](http://gudrutis.lt/parduotuve/gps-laikrodziai/gudrutis-r10-kamufliazinis/)
 
@@ -30,3 +29,5 @@ Lego
 [Raidės kompas](https://pigu.lt/lt/kudikiams-ir-vaikams/zaislai/zaislai-kudikiams/plansetinis-kompiuteris-vaikams-fisher-price-dlm40-lietuviu?id=7048641)
 
 [Ergoterapinai žaislai](https://pigu.lt/lt/kudikiams-ir-vaikams/zaislai/zaislai-kudikiams/lavinamasis-ergoterapinis-zaislas?id=6617706)
+
+[Spalvinimas su vandeniu](https://www.amazon.de/BBLIKE-Malbücher-Zauberstift-Wiederverwendbare-Geburtstagsgeschenke/dp/B07FLQBGCN)
