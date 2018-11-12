@@ -1,6 +1,6 @@
 # LAIŠKAS SENELIUI
 
-<h1> TAURIUI </h1>
+## TAURIUI
 
 [Nardymo akiniai](http://www.weeride.lt/Vaikiski-nardymo-akiniai-Babiators/Vaikiski-nardymo-akiniai-Babiators-melyni)
 
@@ -25,8 +25,8 @@ Robotai
 
 Lego
 
-<h1> EMILEI </h1>
-<br/>
+## EMILEI
+
 [Raidės kompas](https://pigu.lt/lt/kudikiams-ir-vaikams/zaislai/zaislai-kudikiams/plansetinis-kompiuteris-vaikams-fisher-price-dlm40-lietuviu?id=7048641)
-<br/>
+
 [Ergoterapinai žaislai](https://pigu.lt/lt/kudikiams-ir-vaikams/zaislai/zaislai-kudikiams/lavinamasis-ergoterapinis-zaislas?id=6617706)
