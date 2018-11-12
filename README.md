@@ -1,6 +1,6 @@
-# taurius.lt
+# LAIŠKAS SENELIUI
 
-Wishlist
+<h1> TAURIUI </h1>
 
 [Nardymo akiniai](http://www.weeride.lt/Vaikiski-nardymo-akiniai-Babiators/Vaikiski-nardymo-akiniai-Babiators-melyni)
 
@@ -21,16 +21,12 @@ Wishlist
 [Mikroskopas](http://www.skytech.lt/2034-junior-combo-set-microscope-p-333763.html)
 
 
-Lego
-<br/>
 Robotai
-<br/>
-Super wings żaisliukai
-<br/>
-<br/>
+
+Lego
+
 <h1> EMILEI </h1>
 <br/>
-https://pigu.lt/lt/kudikiams-ir-vaikams/zaislai/zaislai-kudikiams/plansetinis-kompiuteris-vaikams-fisher-price-dlm40-lietuviu?id=7048641
+[Raidės kompas](https://pigu.lt/lt/kudikiams-ir-vaikams/zaislai/zaislai-kudikiams/plansetinis-kompiuteris-vaikams-fisher-price-dlm40-lietuviu?id=7048641)
 <br/>
-https://pigu.lt/lt/kudikiams-ir-vaikams/zaislai/zaislai-kudikiams/lavinamasis-ergoterapinis-zaislas?id=6617706
-<br/>
+[Ergoterapinai žaislai](https://pigu.lt/lt/kudikiams-ir-vaikams/zaislai/zaislai-kudikiams/lavinamasis-ergoterapinis-zaislas?id=6617706)
