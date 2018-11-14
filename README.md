@@ -41,6 +41,7 @@ Lego
 [Medinė virtuvė](http://www.vaikysteszaislai.lt/medines-virtuveles/zaisline-virtuvele-bretane)
 [Medinė virtuvė](http://www.vaikysteszaislai.lt/medines-virtuveles/medine-virtuvele-vejas)
 [Medinė virtuvė](http://www.vaikysteszaislai.lt/medines-virtuveles/medine-virtuvele-provansas)
+[Plastmasinė virtuvė](http://zaislu.pirklys.lt/virtuveles-parduotuves/virtuveles/vaikiska-virtuvele-french-touch-magic-bubble-mini-tefal-smoby)
 
 [Mediniai žaisliukai](https://www.medinisarkliukas.lt/mediniai-zaislai)
 
