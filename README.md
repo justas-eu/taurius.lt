@@ -51,10 +51,11 @@ Lego
 
 [Spalvinimas su vandeniu](https://www.amazon.de/BBLIKE-Malbücher-Zauberstift-Wiederverwendbare-Geburtstagsgeschenke/dp/B07FLQBGCN)
 
-[wowwee robotukai](https://www.toycity.lt/lt/parduotuve/prekinis-zenklas/brand_wowwee)
+[Wowwee robotukai](https://www.toycity.lt/lt/parduotuve/prekinis-zenklas/brand_wowwee)
+[Mini RC MiPosuar](https://www.toycity.lt/lt/parduotuve/robotukai-ir-ismanieji-zaislai/robotukai/wowwee-robotas-mini-rc-miposuar-3890-771171138907/p167109)
 
-[robotukas](https://pigu.lt/lt/kudikiams-ir-vaikams/zaislai/zaislai-kudikiams/interaktyvus-zaislas-robotas-bkids?id=19329400)
+[Robotukas](https://pigu.lt/lt/kudikiams-ir-vaikams/zaislai/zaislai-kudikiams/interaktyvus-zaislas-robotas-bkids?id=19329400)
 
 [Magnetiniai trikampiai dėlionė](https://www.amazon.de/PONCTUEL-ESCARGOT-p%C3%A4dagogische-Magnetspielzeug-Lernspielzeug/dp/B0761KFZFQ/ref=sr_1_87?ie=UTF8&qid=1542045175&sr=8-87&keywords=kinder+2+jahre)
 
-[Mini RC MiPosuar](https://www.toycity.lt/lt/parduotuve/robotukai-ir-ismanieji-zaislai/robotukai/wowwee-robotas-mini-rc-miposuar-3890-771171138907/p167109)
+
