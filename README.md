@@ -29,6 +29,8 @@ Sphero robotas [sphero-mini-robot](http://www.skytech.lt/m001grw-sphero-mini-rob
 
 [Dronas](http://www.skytech.lt/cppt0000010701-dji-spark-alpine-white-remote-controller-set-p-399325.html)
 
+[Elektrinis paspirtukas](https://www.topocentras.lt/fotoaparatai-ir-kameros/elektriniai-paspirtukai/elektrinis-paspirtukas-ninebot-by-segway-kickscooter-es2.html)
+
 
 Robotai
 
