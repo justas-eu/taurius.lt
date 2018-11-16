@@ -38,7 +38,6 @@ Lego
 
 ## EMILEI
 
-[Raidės kompas](https://pigu.lt/lt/kudikiams-ir-vaikams/zaislai/zaislai-kudikiams/plansetinis-kompiuteris-vaikams-fisher-price-dlm40-lietuviu?id=7048641)
 
 [Medinė virtuvė](http://www.vaikysteszaislai.lt/medines-virtuveles/zaisline-virtuvele-bretane)
 [Medinė virtuvė](http://www.vaikysteszaislai.lt/medines-virtuveles/medine-virtuvele-vejas)
