@@ -29,6 +29,8 @@
 
 Dar patinka:
 
+Dinozaurai
+
 Robotai
 
 Lego
