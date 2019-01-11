@@ -2,15 +2,11 @@
 
 ## TAURIUI
 
+Šiuo metu man labai patinka Minecraft temos žaislai
+
+[Minecraft žaislai](https://pigu.lt/lt/search?q=minecraft)
+
 [Nardymo akiniai](http://www.weeride.lt/Vaikiski-nardymo-akiniai-Babiators/Vaikiski-nardymo-akiniai-Babiators-melyni)
-
-[Trunki lagaminas](http://www.weeride.lt/Vaikiski-lagaminai-Trunki/Vaikiskas-lagaminas-Trunki-Pedro-Pirat)
-
-Sphero robotas [sphero-mini-robot](http://www.skytech.lt/m001grw-sphero-mini-robot-green-green-white-plastic-p-374136.html)
-[sphero-mini-robot +](http://www.skytech.lt/1b01rw1-robotollie-white-sphero-p-318855.html)
-[sphero-mini-robot ++](http://www.skytech.lt/1b01bfc-sphero-darkside-appenabled-robot-bluetooth-black-ios-android-windows-pol-p-318856.html)
-
-[wowwee robotai](https://www.kaina24.lt/brand/wowwee/)
 
 [wowwee mipozaur](https://www.amazon.de/Wow-Wee-WowWee-Miposaur-Dinosaurier-Roboter/dp/B00VFZDOC0/ref=sr_1_1?s=toys&ie=UTF8&qid=1542180633&sr=1-1&keywords=Miposaur)
 
@@ -31,18 +27,13 @@ Sphero robotas [sphero-mini-robot](http://www.skytech.lt/m001grw-sphero-mini-rob
 
 [Elektrinis paspirtukas](https://www.topocentras.lt/fotoaparatai-ir-kameros/elektriniai-paspirtukai/elektrinis-paspirtukas-ninebot-by-segway-kickscooter-es2.html)
 
+Dar patinka:
 
 Robotai
 
 Lego
 
 ## EMILEI
-
-
-[Medinė virtuvė](http://www.vaikysteszaislai.lt/medines-virtuveles/zaisline-virtuvele-bretane)
-[Medinė virtuvė](http://www.vaikysteszaislai.lt/medines-virtuveles/medine-virtuvele-vejas)
-[Medinė virtuvė](http://www.vaikysteszaislai.lt/medines-virtuveles/medine-virtuvele-provansas)
-[Plastmasinė virtuvė](http://zaislu.pirklys.lt/virtuveles-parduotuves/virtuveles/vaikiska-virtuvele-french-touch-magic-bubble-mini-tefal-smoby)
 
 [Mediniai žaisliukai](https://www.medinisarkliukas.lt/mediniai-zaislai)
 
