@@ -27,7 +27,10 @@
 
 [Elektrinis paspirtukas](https://www.topocentras.lt/fotoaparatai-ir-kameros/elektriniai-paspirtukai/elektrinis-paspirtukas-ninebot-by-segway-kickscooter-es2.html)
 
+[Nintendo Switch](http://www.skytech.lt/2500066-nintendo-switch-pilka-viename-zaidimu-nesiojama-konsole-p-347069.html)
+
 [Microsoft XBOX ONE X 1TB](http://www.skytech.lt/cyv00009-microsoft-xbox-one-1tb-zaidimu-konsole-p-371415.html)
+su [Kinect](http://www.skytech.lt/885370849479-microsoft-kinect-sensorius-skirtas-xbox-one-konsolei-p-220714.html)
 
 Dar patinka:
 
