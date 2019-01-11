@@ -23,6 +23,8 @@
 
 [Racijos](https://www.amazon.de/Spy-Gear-Ultra-Walkie-Talkie/dp/B00IG4Y512/ref=sr_1_19?ie=UTF8&qid=1542032104&sr=8-19&keywords=spy+toys)
 
+[IPad][http://www.skytech.lt/mr7f2hca-apple-ipad-2018-wifi-32gb-pilkas-p-388210.html]
+
 [Dronas](http://www.skytech.lt/cppt0000010701-dji-spark-alpine-white-remote-controller-set-p-399325.html)
 
 [Elektrinis paspirtukas](https://www.topocentras.lt/fotoaparatai-ir-kameros/elektriniai-paspirtukai/elektrinis-paspirtukas-ninebot-by-segway-kickscooter-es2.html)
