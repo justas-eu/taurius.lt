@@ -27,6 +27,8 @@
 
 [Elektrinis paspirtukas](https://www.topocentras.lt/fotoaparatai-ir-kameros/elektriniai-paspirtukai/elektrinis-paspirtukas-ninebot-by-segway-kickscooter-es2.html)
 
+[Microsoft XBOX ONE X 1TB](http://www.skytech.lt/cyv00009-microsoft-xbox-one-1tb-zaidimu-konsole-p-371415.html)
+
 Dar patinka:
 
 Dinozaurai
