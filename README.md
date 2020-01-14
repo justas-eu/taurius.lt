@@ -2,11 +2,11 @@
 
 ## TAURIUS NORI IR TAUPO DRONUI taip pat nori
 
+[DJI Mavic Air Dronas - jau taupau](http://www.skytech.lt/cppt0000014101-dji-mavic-air-arctic-white-universalus-lengvai-sulankstomas-ypac--p-381465.html)
+
 [Minecraft žaislai](https://pigu.lt/lt/search?q=minecraft)
 
 [IPad](http://www.skytech.lt/muqw2fda-apple-ipad-mini-kartos-wifi-64gb-pilkas-p-436242.html)
-
-[DJI Mavic Air Dronas - jau taupau](http://www.skytech.lt/cppt0000014101-dji-mavic-air-arctic-white-universalus-lengvai-sulankstomas-ypac--p-381465.html)
 
 [Nintendo Switch](http://www.skytech.lt/2500066-nintendo-switch-pilka-viename-zaidimu-nesiojama-konsole-p-347069.html)
 
