@@ -1,33 +1,12 @@
-# LAIŠKAS SENELIUI
+# Norų sąrašas
 
-## TAURIUI
-
-Šiuo metu man labai patinka Minecraft temos žaislai
+## TAURIUS NORI IR TAUPO DRONUI taip pat nori
 
 [Minecraft žaislai](https://pigu.lt/lt/search?q=minecraft)
 
-[Nardymo akiniai](http://www.weeride.lt/Vaikiski-nardymo-akiniai-Babiators/Vaikiski-nardymo-akiniai-Babiators-melyni)
+[IPad](http://www.skytech.lt/muqw2fda-apple-ipad-mini-kartos-wifi-64gb-pilkas-p-436242.html)
 
-[wowwee mipozaur](https://www.amazon.de/Wow-Wee-WowWee-Miposaur-Dinosaurier-Roboter/dp/B00VFZDOC0/ref=sr_1_1?s=toys&ie=UTF8&qid=1542180633&sr=1-1&keywords=Miposaur)
-
-[wowwee roboraptor](https://www.1a.lt/vaikams_kudikiams/lego_deliones_ir_zaislai/robotai/wowwee_roboraptor_x_8395)  
-
-[Roboter](https://www.amazon.de/Boxer-Spielspa%C3%9F-spielbereit-Charakter-App-Unterst%C3%BCtzung/dp/B07BMB2QP3)
-[Roboter](https://pigu.lt/lt/vaikams-ir-kudikiams/zaislai-ir-zaidimai-vaikams/zaislai-berniukams/interaktyvus-robotas-boxer-60453986046962?id=24351790)
-
-[Išmanus laikrodis](http://gudrutis.lt/parduotuve/gps-laikrodziai/gudrutis-r10-kamufliazinis/)
-
-[Diktafonas](http://www.skytech.lt/v405291be000-olympus-digital-voice-recorder-vn540pc-segment-display-139-wma-blac-p-406516.html)
-
-[Mikroskopas](http://www.skytech.lt/2034-junior-combo-set-microscope-p-333763.html)
-
-[Racijos](https://www.amazon.de/Spy-Gear-Ultra-Walkie-Talkie/dp/B00IG4Y512/ref=sr_1_19?ie=UTF8&qid=1542032104&sr=8-19&keywords=spy+toys)
-
-[IPad](http://www.skytech.lt/mr7f2hca-apple-ipad-2018-wifi-32gb-pilkas-p-388210.html)
-
-[Dronas](http://www.skytech.lt/cppt0000010701-dji-spark-alpine-white-remote-controller-set-p-399325.html)
-
-[Elektrinis paspirtukas](https://www.topocentras.lt/fotoaparatai-ir-kameros/elektriniai-paspirtukai/elektrinis-paspirtukas-ninebot-by-segway-kickscooter-es2.html)
+[DJI Mavic Air Dronas](http://www.skytech.lt/cppt0000014101-dji-mavic-air-arctic-white-universalus-lengvai-sulankstomas-ypac--p-381465.html)
 
 [Nintendo Switch](http://www.skytech.lt/2500066-nintendo-switch-pilka-viename-zaidimu-nesiojama-konsole-p-347069.html)
 
