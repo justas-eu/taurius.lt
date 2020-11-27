@@ -1,6 +1,8 @@
 # Norų sąrašas
 
-## TAURIUS NORI IR TAUPO DRONUI taip pat nori
+## TAURIUS nori
+
+[Lietuviškas Monopoly](https://pigu.lt/lt/search?q=stalo+%C5%BEaidimas+monopoly)
 
 [DJI Mini 2 - jau taupau](http://www.skytech.lt/cpma0000031201-dji-mini-p-529617.html)
 
@@ -18,6 +20,8 @@ su [Kinect](http://www.skytech.lt/885370849479-microsoft-kinect-sensorius-skirta
 Dar patinka:
 
 Laikas praleistas kartu su jumis
+
+Kiti stalo žaidimai
 
 Dinozaurai
 
