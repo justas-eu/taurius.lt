@@ -33,4 +33,7 @@ Robotai
 
 [Wowwee robotukai](https://www.funtastik.lt/robotas-wowwee-miposaur-0890)
 
+[Emilė dailininkė - gal kažką originalaus jai] (https://uzduociudezute.lt/product-category/kurybiniu-uzduociu-rinkiniai/)
+
+
 
