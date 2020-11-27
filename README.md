@@ -10,7 +10,7 @@
 
 [Minecraft žaislai](https://pigu.lt/lt/search?q=minecraft)
 
-[Apple iPad](http://www.skytech.lt/mw742fda-apple-ipad-102-wifi-32gb-pilkas-p-468246.html)
+[Apple iPad 8](http://www.skytech.lt/myl92fda-apple-ipad-wifi-32gb-pilkas-p-526082.html)
 
 [Nintendo Switch](http://www.skytech.lt/2500066-nintendo-switch-pilka-viename-zaidimu-nesiojama-konsole-p-347069.html)
 
