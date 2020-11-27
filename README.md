@@ -35,5 +35,4 @@ Robotai
 
 [Emilė dailininkė - gal kažką originalaus jai](https://uzduociudezute.lt/product-category/kurybiniu-uzduociu-rinkiniai/)
 
-
-
+[Sphero Mini](http://www.skytech.lt/m001brw-sphero-mini-appenabled-robotic-ball-robot-blue-white-plastic-p-374135.html)
