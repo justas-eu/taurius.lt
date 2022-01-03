@@ -2,17 +2,13 @@
 
 ## TAURIUS nori
 
-[Lietuviškas Monopoly](https://pigu.lt/lt/search?q=stalo+%C5%BEaidimas+monopoly)
+[Fujifilm Instax](https://pigu.lt/lt/mobilus-telefonai-foto-ir-video/foto-iranga/momentiniai-fotoaparatai?f[44157][4203452]=fujifilm)
 
-[DJI Mini 2 - jau taupau](http://www.skytech.lt/cpma0000031201-dji-mini-p-529617.html)
-
-[Knygos](https://www.knygos.lt/lt/knygos/zanras/vaiku-literatura/)
+[DJI Mavic Mini 2](https://www.orlaivis.lt/produktas/dji-mavic-mini-2-fly-more-combo/)
 
 [Minecraft žaislai](https://pigu.lt/lt/search?q=minecraft)
 
-[Apple iPad 8](http://www.skytech.lt/myl92fda-apple-ipad-wifi-32gb-pilkas-p-526082.html)
-
-[Nintendo Switch](http://www.skytech.lt/2500066-nintendo-switch-pilka-viename-zaidimu-nesiojama-konsole-p-347069.html)
+[Apple iPad 8 Klaviatūra](https://www.logitech.com/en-roeu/products/ipad-keyboards/slim-folio-ipad-keyboard-case.html)
 
 [Microsoft XBOX ONE X 1TB](http://www.skytech.lt/cyv00009-microsoft-xbox-one-1tb-zaidimu-konsole-p-371415.html)
 su [Kinect](http://www.skytech.lt/885370849479-microsoft-kinect-sensorius-skirtas-xbox-one-konsolei-p-220714.html)
@@ -29,10 +25,17 @@ Robotai
 
 ## EMILEI
 
-[Poniai](https://pigu.lt/lt/search?q=my+little+pony)
+[iPad](https://www.ideal.lt/ipad/ipad-2021)
 
 [Wowwee robotukai](https://www.funtastik.lt/robotas-wowwee-miposaur-0890)
 
-[Emilė dailininkė - gal kažką originalaus jai](https://uzduociudezute.lt/product-category/kurybiniu-uzduociu-rinkiniai/)
+[Emilė patinka piešti - gal kažką originalaus jai](https://uzduociudezute.lt/product-category/kurybiniu-uzduociu-rinkiniai/)
 
 [Sphero Mini](http://www.skytech.lt/m001brw-sphero-mini-appenabled-robotic-ball-robot-blue-white-plastic-p-374135.html)
+
+Dar patinka:
+
+Puzlės
+
+Lavinimo žaidimai
+
